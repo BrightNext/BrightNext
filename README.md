@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning ( how to get a proper rest )
 - 💞️ I’m looking to collaborate on imagination.
-- 📫 How to reach me :- [gangabora915@gmail.com]
+- 📫 How to reach me :- [g@gmail.com]
